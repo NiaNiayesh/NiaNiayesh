@@ -23,4 +23,3 @@ I’m always eager to learn new tools and improve my skills.🔥<br>
 </div>
 
 <br/>
-<hr/>
